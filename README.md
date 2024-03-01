@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @KingPnguin
+- 👀 I’m interested in video games, cats, and coding
+- 🌱 I’m currently learning Karel Javascript
+- 💞️ I’m looking to collaborate on anything!
+- 📫 How to reach me kingpenguin1140@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I have 2 cats
